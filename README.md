@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @RonQ43
+- 👀 I’m interested in DOS Basic, Pascal
+- 🌱 I’m currently learning DOSBOX for Linux
+- 💞️ I’m looking to collaborate on DOSBOX
+- 📫 How to reach me ... email: nubiusa43 srvr is AOL
+- retired barefoot EE
+- hobby HamRadio, sailing with shack in 19ft Mariner sloop
